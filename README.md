@@ -1,1 +1,1 @@
-This is he problem craft from Tantares
+This is the problem craft from Tantares
